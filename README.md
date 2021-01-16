@@ -1,1 +1,0 @@
-# tensaijanit.github.io
